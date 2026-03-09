@@ -1,3 +1,2 @@
 ## <p align=center>![sylv](https://cdn.discordapp.com/attachments/1480560055693742126/1480563096194908312/4dc42ba6-5657-4a01-a4f9-ef336c3da39e.gif?ex=69b02155&is=69aecfd5&hm=09cae6e0cc1423772caf6db0ce87364f0e72838cca53ddd249c4cc53875ce2cf)
-## <p align=center>![hi](https://media.discordapp.net/attachments/1480560055693742126/1480565470636802108/Untitled58_20260309095818.png?ex=69b0238b&is=69aed20b&hm=56887d7f68e5ed45b21e7c91a223d9c3b4ebaf863c2437e9d9386514865b0a30&=&format=webp&quality=lossless)
-## <img width=30% src=https://media.discordapp.net/attachments/1480560055693742126/1480565470636802108/Untitled58_20260309095818.png?ex=69b0238b&is=69aed20b&hm=56887d7f68e5ed45b21e7c91a223d9c3b4ebaf863c2437e9d9386514865b0a30&=&format=webp&quality=lossless />
+<p aligh=center> BIG WIP!! adult.
